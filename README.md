@@ -1,0 +1,2 @@
+- 👋 Hola soy @LautaroGon24
+- creando mi primer repositorio
